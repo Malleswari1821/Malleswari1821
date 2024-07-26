@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Malleswari1821
-- 👀 I’m interested in to teaching 
+- 👀 I’m interested in teaching 
 - 🌱 I’m currently learning btech
 - 📫 How to reach me ...malliswarimahendra@gmail.com
 - 😄 Pronouns: ...she/her
