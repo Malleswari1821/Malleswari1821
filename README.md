@@ -1,6 +1,6 @@
 👋 Malleswari Boggavarapu
 
-🌟 Aspiring AI Enthusiast | Python Developer 🐍
+🌟 Aspiring AI Enthusiast | Python programmer 🐍
 
 🚀 Pursuing B.Tech in Artificial Intelligence and machine learnig at Geethanjali Institute of Science and Technology
 
